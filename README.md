@@ -1,1 +1,13 @@
 # REPASANDO_PYTHON-JIMENEZ-GAMBOA-ISSIS-ALEXA-NO.1189-3W-
+![image](https://github.com/user-attachments/assets/703f0be3-4e13-42f0-ac4d-9e099c35ed16)
+![image](https://github.com/user-attachments/assets/e07fe5f3-beda-4502-b155-910f7f92acbe)
+![image](https://github.com/user-attachments/assets/5190b6cd-bfbd-4b11-b6d0-e50d6c260d01)
+![image](https://github.com/user-attachments/assets/1ae3fb8d-42eb-4610-bca6-c237be660c08)
+![image](https://github.com/user-attachments/assets/64477604-89bb-4736-aa95-8b3cb344f6b8)
+![image](https://github.com/user-attachments/assets/a5103a0a-2064-437d-bd54-60acd3d0a644)
+![image](https://github.com/user-attachments/assets/2b830c32-31ee-4bf9-9c06-4b30a60cf6a6)
+![image](https://github.com/user-attachments/assets/15ea770a-ed1c-4e08-b106-6878adab47c3)
+![image](https://github.com/user-attachments/assets/b70fba00-646d-468c-9511-afa730f89e0f)
+![image](https://github.com/user-attachments/assets/1932b68d-5266-4452-85c9-617da2dc9dca)
+![image](https://github.com/user-attachments/assets/2461985d-cd8a-49e2-a3d8-ad69b6804584)
+![image](https://github.com/user-attachments/assets/f798cd31-81ad-4199-888e-46b50aa784b8)
